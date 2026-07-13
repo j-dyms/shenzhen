@@ -1,0 +1,655 @@
+威能壁挂炉出现f.29故障售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月13日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括威能壁挂炉出现f.29故障售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+威能壁挂炉出现f.29故障售后电话400-811-596024小时售后服务热线上线（（2026年07月13日官网公布）最新公告）
+威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+威能壁挂炉出现f.29故障售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+威能壁挂炉出现f.29故障售后电话400-811-5960公司主营威能壁挂炉出现f.29故障售后电话400-811-5960维修 →威能壁挂炉出现f.29故障售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，威能壁挂炉出现f.29故障售后电话400-811-5960服务承诺?.
+北京市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/1157f1e23e44234a7f63fd7c4a6dfb6165df23ba
+。
+南京市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/j-dyms/shenzhen/commit/2cb7a8bec247e902bf3e1032cf52ef6fae14dc8b
+。
+秦皇岛市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/chuckdal/jiazheng/commit/f024cadbfc3e68d52c0ece0d9a1ae2c6ae389fbd
+。
+珠海市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/dac4cf1856183403ca9b77fdc49cae7d44a5e0af
+。
+安康市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/j-dyms/shenzhen/commit/0504188db331d9d229e00a2c50bdfe733ebba033
+。
+安庆市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/4df7cc0b777773346246ea6e0679064274915a41
+。
+鞍山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/chuckdal/jiazheng/commit/888bf7abab07457cc7db71ebb14850983d01f61f
+。
+安阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/192aa6d036656602ded286f22dca27daee6dd3fc
+。
+巴中市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/j-dyms/shenzhen/commit/34f7ca5b334454b09d70d76045b47de5fb081408
+。
+百色市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/72320f3af6ca1e70ef433c48c59224c48411ec4a
+。
+蚌埠市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/chuckdal/jiazheng/commit/7e29ae40d5bd902ad75124247c8192f5b44b0340
+。
+保定市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/553aa94313893499185c1f9d98bb106cdfbd811b
+。
+宝鸡市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/j-dyms/shenzhen/commit/b5955282a3db091874eb1b0b40038e2e16d2c4f0
+。
+保山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/avidiaz999/hangzhou/commit/aa5d1c3be341187c7c97f7ca6bf2c6bd5103d750
+。
+包头市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/chuckdal/jiazheng/commit/f10ed262019470cc43bead99c18c4e47f23c4625
+。
+北海市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/28c0c660de33447dd6c755935941429ba6b11f15
+。
+本溪市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/j-dyms/shenzhen/commit/87a51b08d1bdaeaf2b1ea42934e66f2373d2c734
+。
+滨州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/a62bde0821f83d62279cf7f2277b07a0f121e6da
+。
+博罗市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/chuckdal/jiazheng/commit/42c18749caaf6f0d9a706f883f3f2faa807fff09
+。
+沧州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/829a5f77a81acff5cc53e25c47affa965e280fc1
+。
+长春市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/5f6ae1c3d2f1f10915533d6d6979ee31ec7a1d2c
+。
+常德市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/j-dyms/shenzhen/commit/e3c0e7793a87c7f5013f6536fed5c5cb5a22464d
+。
+长葛市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/chuckdal/jiazheng/commit/bbcc97c2e92f80a05d8af92ab9f0436651f638d2
+。
+长沙市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/be8fb294221941b1573ab1ea518ea47c872362cf
+。
+常熟市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/1ad018042c7674e6e13050b1181eae1352b2fe30
+。
+长兴市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/j-dyms/shenzhen/commit/3f6a469cce260a40ddaec371a7bb95fb43ff9bb8
+。
+长治市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/chuckdal/jiazheng/commit/c32ef0da28a5d852648eef3504ed20858f47f590
+。
+常州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/c69cd7c5cfc2c47a5252e6becd5bf338f80b9ea6
+。
+巢湖市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/j-dyms/shenzhen/commit/d3d443dddf7fbb35f1427750e9dcc117f5e7d914
+。
+朝阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/7af6f6171e3d7551b3defa604f3c83fd252b41fd
+。
+潮州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/chuckdal/jiazheng/commit/a22ab172001d0b1ab1fc9743eea5f6c054ddf580
+。
+郴州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/4ecf352dd7caf6d51e315afce82b32c43bdc9301
+。
+承德市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/j-dyms/shenzhen/commit/704308015b84a5538cf2be94be76083f160b6f88
+。
+成都市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/61b3bb391323ab029a8f99e8b990821cb6d80d75
+。
+池州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/chuckdal/jiazheng/commit/e3c683a7622d0f4d1e555098a4bcee3d9f906869
+。
+崇左市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/b9c3995185e337c9408014e98a9f773062e36077
+。
+滁州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/j-dyms/shenzhen/commit/fed426e268738356e0a18153abf9ac14f18ffd57
+。
+慈溪市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/300631119191c1052d4be02d86bcf7df55575ad2
+。
+大丰市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/chuckdal/jiazheng/commit/6d6cad101e5e0eb1596a5de5ed256e46037e7bbc
+。
+大理市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/a2079b29688d94347ed7a29def1bcb708a7169f4
+。
+大连市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/j-dyms/shenzhen/commit/198a3427f44bdefd874d4cdb468ddecf4b27b68e
+。
+大庆市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/f1c21512af1474ec07c57d548d95ac5178dd03bf
+。
+大同市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/chuckdal/jiazheng/commit/a554bb9f434b7f92fb43acf002f72e75f9406bcc
+。
+达州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/567ee55d6e8cfbcebeca146e182a71db29f1fd2f
+。
+丹东市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/j-dyms/shenzhen/commit/4f50753e53785897e84851a2159611381075ad16
+。
+德清市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/08008fed696c14cfe0be10fa4f7f3bf7d84edba0
+。
+德阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/chuckdal/jiazheng/commit/07f03936bdf45de335574c19bfc6f97b95dd2d79
+。
+德州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/288a7e7b60bd8a58ee38dc31c1947d09dafb84ef
+。
+定州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/j-dyms/shenzhen/commit/10c85ea0b13f9c5133d06838b7618325ef89de35
+。
+东海市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/3b9fec8d71614fee14d5bacc50bd88d10afe8681
+。
+东台市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/chuckdal/jiazheng/commit/1844590314412ebbfff73d3d0bb61e9ed8c39695
+。
+东营市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/a788184473fd8855f8d4d304d3893078a8becdb4
+。
+东莞市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/j-dyms/shenzhen/commit/90c91fd2c19aaf4b785de3f4ffc43d9e052cfec1
+。
+鄂尔市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/chuckdal/jiazheng/commit/7910a6ca68120942f4a9bee930f9ed22b42d29f7
+。
+鄂州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/b0d7d0deb017cb0638bf49ec37b9ad6e071bab9e
+。
+恩施市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/18491c5b5e303449f90014dbc6c0691d04732d5c
+。
+防城港市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/j-dyms/shenzhen/commit/df3fcd1cb03a0dded414e87d677c0c45fd26728c
+。
+佛山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/d05c0a09794006453f752397bf2926a33e4831bc
+。
+抚顺市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/chuckdal/jiazheng/commit/731572118e2f536a19e8a0de46bc5df77533ce37
+。
+阜新市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/82553bdab60ef7498aa873b946cef82634a8ec11
+。
+阜阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/avidiaz999/hangzhou/commit/745bf2661a9e9c0fbc60b7f6483f7a7ec81ffbae
+。
+抚州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/j-dyms/shenzhen/commit/7f344402ed2fbc4a940f2484aa669a43ffb2cd51
+。
+福州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/chuckdal/jiazheng/commit/9b3d5d9ed1c829b93f45cadd7300956ffeb5d9eb
+。
+赣州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/98afe17eeee0223aff30132bb420051ff3033138
+。
+馆陶市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/55576f20d3cdb6b9ced12429a1fcd457b445fbce
+。
+广安市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/j-dyms/shenzhen/commit/727152e335dbf4cb80b4bf1d552235f93ae34e75
+。
+广元市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/chuckdal/jiazheng/commit/3d1400622b3a35a9c5343b4b5e1cef75b4ee6e77
+。
+广州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/9182e5e369eebe614b94063d807b365c089f916b
+。
+贵港市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/j-dyms/shenzhen/commit/3b7c06b471bf1b4582cbf48c8bd3b31c57fa4447
+。
+桂林市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/888db8e36b730f24839896f3e9fb87d4c3f6cd77
+。
+贵阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/chuckdal/jiazheng/commit/1a61fa5cb791ec8f547b7f27151d2c64f00f5946
+。
+哈尔滨市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/712b65400b96f965f0e2167d7d0623cb9c811cea
+。
+海安市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/j-dyms/shenzhen/commit/79649590bfbddfdd6d33cf0d35158b58334cbe14
+。
+海口市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/e4d06e137b2cb76a5a1aabb6537f825488b01cdc
+。
+海门市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/chuckdal/jiazheng/commit/ab4919b0cb0c2eca7e1c25715f1880ee0cbff902
+。
+海宁市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/692fd6c458429ef5e2871a2c1f9c88bfb5065185
+。
+邯郸市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/j-dyms/shenzhen/commit/10d488d218092e0e6500d325319b1b69a17f1bb6
+。
+汉中市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/avidiaz999/hangzhou/commit/0c8da754f6ff8ff8a85ff459a1cd0d991f2138bf
+。
+杭州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/chuckdal/jiazheng/commit/62b29827c719d4858a75c3a5a378ddebea689455
+。
+鹤壁市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/08cefc7180fd816111a82b8a99881049646e8640
+。
+河池市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/j-dyms/shenzhen/commit/17dddc8798f731c829c35cc9f12463aa554ba1ca
+。
+合肥市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/182ce088ae6a7551a4f305b41cf102fc845742aa
+。
+河源市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/chuckdal/jiazheng/commit/7dcfbcaac4780ed677d65c3e286c902587756ea5
+。
+菏泽市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/832b0492467c0e6453b861c8e1236cb9a16b8a0c
+。
+贺州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/j-dyms/shenzhen/commit/9434c9418597b9a5033e533dc2aaa0027782cab5
+。
+衡水市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/85f3ce9f8209dfd3b3c2931e684e7e0d824166fc
+。
+衡阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/chuckdal/jiazheng/commit/fb27b72c4ed778c4c8df0f066a123fc1121dca2f
+。
+呼和浩特市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/24390c2fd645e8f62cabac4abef70070cbac0f01
+。
+葫芦岛市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/j-dyms/shenzhen/commit/5e796b155bbc3a60576fa7fc9e977f6dab4699a3
+。
+湖州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/2632c88d2cb1b47681888cf48611db13bb32f97a
+。
+淮安市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/chuckdal/jiazheng/commit/60003c64d0282c5a3892b50e717868574e14bd3a
+。
+淮北市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/19690ba02847a1c9876c624e77dab0c8650d4033
+。
+怀化市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/j-dyms/shenzhen/commit/b665d611a900f889a34bb1e36e870b3cf85cbcd6
+。
+淮南市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/4f02c7dac307c03037bcce21722df6f88d8a0b78
+。
+黄冈市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/chuckdal/jiazheng/commit/d06b3bd2778a48c9b8f2696aa09fc9dc543bbe77
+。
+黄山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/0e4da398a2db822e89b47e9af7e7d4da1e1413ed
+。
+黄石市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/j-dyms/shenzhen/commit/7c0de1165431699316f86d75472e007a132a6d48
+。
+惠东市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/1a7b5068e092e4c764557d5625ca9f28e59795fa
+。
+惠州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/chuckdal/jiazheng/commit/d0e2edcda49fecd09bd9cd93d64b9a3ab8271fa1
+。
+霍邱市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/12a167bfe13c2ff3cf86cc51a5ee6165e33a2064
+。
+吉安市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/j-dyms/shenzhen/commit/7405d87a971b30403f1ff01466d6e0338fba64a1
+。
+吉林市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/cb87811b4e7ebaae40485479b209cae094712217
+。
+济南市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/chuckdal/jiazheng/commit/5c8e502c7a7f99321762ff226b93bd43a0c2a7a5
+。
+济宁市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/ff34f630846b5476c952b63e7c07f9b63d09793a
+。
+济源市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/j-dyms/shenzhen/commit/9bc06f149c5d84cda3098a3974a11c19dd398674
+。
+佳木斯市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/eb20c0ec9fbe3f0055967fb7b75947de97827fa0
+。
+嘉善市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/chuckdal/jiazheng/commit/4624ab9575b969bd6cf7971f8151d744c420a5ae
+。
+嘉兴市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/f8b2e31de0c13c11596db1bb363e31e9075f555f
+。
+嘉峪关市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/j-dyms/shenzhen/commit/439eb8e5aa648c9930c0f5606b3fbfc13f8b9158
+。
+建湖市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/avidiaz999/hangzhou/commit/066eaeb3032ba8bff965d818783b98e0091ac44d
+。
+江门市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/chuckdal/jiazheng/commit/4d91d486f0fa4452105b5035b13a180a86098f6c
+。
+江阴市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/ef00dc0c83667d1d601d8aeb320124b9219dcb96
+。
+焦作市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/j-dyms/shenzhen/commit/3988cfb059cb516877d6d4763f02e9aaa7ca8f0e
+。
+揭阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/chuckdal/jiazheng/commit/39e1b38d0e911ff552b910ce9aacefc7e01de76f
+。
+金华市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/8ff69d793d755da80a8018d00b39aa5a29cbbf18
+。
+晋江市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/fad5d258ae943d89fb702493514a9880155bda7a
+。
+锦州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/j-dyms/shenzhen/commit/b23d31ee38c40d2c96c513fa1de2faa555dc0247
+。
+景德镇市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/03661bd134b823e70263a671f1395cc0cc2dd868
+。
+靖江市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/chuckdal/jiazheng/commit/8d25e7b0c0072906a65397c936432b4d5a868f50
+。
+荆门市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/6b321f80ffa358776630778d295f4cfa1f9a4cb3
+。
+荆州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/j-dyms/shenzhen/commit/66336ca3450ece5ef07d6b75378330ffffecc689
+。
+九江市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/chuckdal/jiazheng/commit/7278182d091008f88a5d74d54da8d3d92ed9d9cf
+。
+喀什市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/avidiaz999/hangzhou/commit/502359040ac5ed4b53a7101b26fa3373e52f5814
+。
+开封市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/e27d2c9b007918d375cc25508abcc1f3a14f1d21
+。
+克拉玛市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/j-dyms/shenzhen/commit/a91d6ee84f316fffb8b4fe929c85f00ccf1dd8a8
+。
+垦利市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/chuckdal/jiazheng/commit/fb7a9dca8e6ed71ae8288219a3d18b0baae1c5e4
+。
+昆明市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/6d96d101596c79b920accf650e4dec56f1b17a7a
+。
+昆山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/87efd626d01bb097905f42578a005ea2a7f5af3f
+。
+拉萨市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/j-dyms/shenzhen/commit/ccc03ec5e55cb6df3fd2db44dec38c81dc4c4c87
+。
+来宾市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/d89704306644a8a91ac128083cb573145f42d3ed
+。
+莱芜市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/chuckdal/jiazheng/commit/9c36adf604676c68b7d55df2eb7e3409a2f8edc5
+。
+兰州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/3007a1401b149acdc22c46f3c9174fdda00a529c
+。
+廊坊市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/j-dyms/shenzhen/commit/67ef21a24f28217a7ea1c25e1aa5f25235d6c4a8
+。
+乐清市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/chuckdal/jiazheng/commit/940753749db3223d556e4fb789a5ed6bf159d3ce
+。
+乐山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/74dfd5f1fb609f5a1cbbc714423bc5d0365e9b22
+。
+丽水市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/17ffc80a72abd268ba09255c850605a44ec51512
+。
+连云港市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/j-dyms/shenzhen/commit/57d0eedcf2f152deaecfe2727b124e490206bb79
+。
+凉山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/chuckdal/jiazheng/commit/73836ff857bd2b149c5c1a75dbe3dc84412f38ae
+。
+聊城市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/avidiaz999/hangzhou/commit/2941cb9812398d7a4be78f25c8d79778daf6ef43
+。
+辽阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/5aaf993d567dbec8e2dc12bf5ac5b29d72563422
+。
+临汾市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/j-dyms/shenzhen/commit/0847300fc1debbba78aeff26bd1876e4550cc5f2
+。
+临沂市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/chuckdal/jiazheng/commit/b7cbe63af5214c4a57be30dcaa3f84b3b41a6b43
+。
+六安市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/b56874b00ac7494fe89fed64313088ee166bdead
+。
+柳州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/b5a4f07938e0b366bf5e581a19a884c4c5a8d9ec
+。
+龙岩市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/j-dyms/shenzhen/commit/58e75edcc38b9a8df27936cdd93cf7579a1618e8
+。
+娄底市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/chuckdal/jiazheng/commit/107901e89465bf707391e25edc4d0774d85953eb
+。
+洛阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/a4494786d7a4c46f34d5eeab69497706d72fe9b4
+。
+马鞍山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/j-dyms/shenzhen/commit/74894480f6b9753f489f5343a257b57e26d60829
+。
+茂名市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/208171cd2574c9b334f0f2d0750c576474ef72ec
+。
+眉山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/chuckdal/jiazheng/commit/2b869127dcf133211898e40263cecd54ac87ea14
+。
+梅州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/1cfc3b45ba6a4e255efa49226563c28c87993813
+。
+绵阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/b6f24e3cff725c4c8563b1fadcf08eafd3feab7a
+。
+明港市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/j-dyms/shenzhen/commit/1db5589d64d9d9389b3d58bb38a32d71dd931f28
+。
+牡丹江市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/chuckdal/jiazheng/commit/80facc3a8005242e915e3067a77eb8c3dda80c04
+。
+南安市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/792867f0c9aaf69ffa066f541320e0e247448a70
+。
+南昌市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/74ecab8919d93118301e17d51a0e25495fb04e66
+。
+南充市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/j-dyms/shenzhen/commit/7e2e3bc76e4e6845d36f84ccc567142a237474c3
+。
+南京市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/chuckdal/jiazheng/commit/c8335a19931301f45e960304017832afa73262a7
+。
+南宁市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/91b4d577784e92631e8c76bc7a0861b1a7e9c99d
+。
+南平市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/j-dyms/shenzhen/commit/5d7b1279e0fd9fe824b0d83ae4d46d67d33c31a7
+。
+南通市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/a38d4bba5c86542a547065f697e07a6e5424cdc1
+。
+南阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/chuckdal/jiazheng/commit/66acd4cbf96a42ce66fa1495e2a453b0b2e90196
+。
+内江市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/b481b87e05e27cba1e01b3d7530b6d846bee9869
+。
+宁波市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/j-dyms/shenzhen/commit/035d12444bbb5765f05fe0f47980b49cab3f83a1
+。
+宁德市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/1412c5bcf2aac922fab042a03e9ec63c6003ded7
+。
+宁国市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/chuckdal/jiazheng/commit/8a4b89e5e82beeb6dbbee51c1402ea190e3ffdab
+。
+盘锦市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/7e87aca2552eaf611613800e6cf4792604498605
+。
+攀枝花市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/avidiaz999/hangzhou/commit/92719090fec80ab632270dbf034b21f5ea286e3a
+。
+平顶山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/j-dyms/shenzhen/commit/0122e69ea71d9dfddf7ebd46ca22653bc5351870
+。
+萍乡市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/chuckdal/jiazheng/commit/118467087b38575848140cff51ce5e28a54bf7bf
+。
+莆田市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/762f74d276236746edfd815506e9e907a2da4f6a
+。
+启东市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/j-dyms/shenzhen/commit/c923131ec5a0a9f0499d3f45cf59f60e8b55c92d
+。
+齐齐哈尔市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/avidiaz999/hangzhou/commit/fee05a991bac4790eadd2c6b92f499ae295659b9
+。
+潜江市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/chuckdal/jiazheng/commit/85fe9d82b989a2957dbd4774d80923b108c9c612
+。
+秦皇岛市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/e6b07a11786873eaacd449316ad934140fd8fe7e
+。
+钦州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/j-dyms/shenzhen/commit/d2ecb5693579b63cf02c14ed1a75d267d9764900
+。
+青岛市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/9c200657b98a6a55bbdfa07ce57f14cb68b5bac8
+。
+清远市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/chuckdal/jiazheng/commit/6e9d14eb6cc372afdf1c68ecc598ef05121125aa
+。
+曲靖市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/4ce0d9294502137cc8025e386eba0489fbe6a031
+。
+泉州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/fd190e959a8575c46f8095ff7eb23036675fc583
+。
+日照市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/j-dyms/shenzhen/commit/30fb5fcd2af7745a326812d832d57844107ea1ca
+。
+如东市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/chuckdal/jiazheng/commit/2d2875ce1f47fdf731639cf30c499820af5f3c54
+。
+如皋市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/b766ab1419733aad5c56a331bf6b1fee920631aa
+。
+瑞安市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/2706133dd9adfece9f63acda636fb6a0a5880132
+。
+三门峡市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/j-dyms/shenzhen/commit/235ffc9af3fb8ab9f57359fcab37833459b684d5
+。
+三明市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/chuckdal/jiazheng/commit/65e104607ffaa155a7d7042f85981ddbb3fd8484
+。
+三亚市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/25cffde143bdbdcdd111add78dd7ed037bbbc25c
+。
+汕头市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/c17441a03121aa0550ccc59b5d9ee687737669c4
+。
+汕尾市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/j-dyms/shenzhen/commit/52a5a284ec2e3641537926cfbb7a8189b6294df3
+。
+上海市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/chuckdal/jiazheng/commit/876e57d94dba3f0f578f3de644691d978096c349
+。
+商丘市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/1a3efcce653ab91d3acd0f1c4dfe7e605b58448e
+。
+上饶市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/74f6ff1d7165e06203edc389cd3a980c8b3c7e33
+。
+韶关市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/j-dyms/shenzhen/commit/49d890e8d8168df435a4ae5f4d1a848c9e71a335
+。
+绍兴市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/chuckdal/jiazheng/commit/62769b140b5c68569c41818bb3c410584ec81b9e
+。
+邵阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/6ef18610287cd96ec8cf3e1dc5601af1725d0166
+。
+神农架市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/14d6f899f813cf7340efa620b04f12d382efdb4c
+。
+沈阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/j-dyms/shenzhen/commit/3d74c701e5f4b2fed6b77f36ce635e8170e6339b
+。
+深圳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/chuckdal/jiazheng/commit/f7ea2186783a5c5b9dfa23ce70c17ff5d5466c2a
+。
+石河子市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/99508ed99aeab6b0a3da31eb5779426e48e7bdb3
+。
+石家庄市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/e3d821ae56432939ab2d715d48e032b8a5446cdc
+。
+石狮市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/j-dyms/shenzhen/commit/5a23e9f6e7640dd6cef8b7f9859059bcc351c3ff
+。
+十堰市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/chuckdal/jiazheng/commit/e87518d387266eee209834d40236d4e74f28c06e
+。
+寿光市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/5dc012fa38498b5fc715eb285520b8ce856f72f8
+。
+顺德市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/fd6eadbd9ab45ee766a8f03fdd74efaf39a05708
+。
+四平市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/j-dyms/shenzhen/commit/640f8aec0e05f71ed1450cde413430a5596d55c3
+。
+宿迁市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/chuckdal/jiazheng/commit/403aeb615041967b7ea55f76bd884d14256c2e56
+。
+苏州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/9eb88069788d59cd862888144123325bda7a6249
+。
+宿州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/34792f93120f00cb79ed823f42af4fed8b24864c
+。
+遂宁市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/j-dyms/shenzhen/commit/9236f8924c9977dd745c9a8cefb165206fa0c831
+。
+随州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/chuckdal/jiazheng/commit/d4f018c1f8d6723f7e9982865559d0ba8a3092f7
+。
+泰安市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/76b40dfe3e81ce78c982432ac54d1198f93670f2
+。
+台山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/25ffd8d37453d9946d560d2a540e8ac7ae6f64a8
+。
+泰兴市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/j-dyms/shenzhen/commit/27c592cb8cae3398b9fa67be860673bd233006c4
+。
+太原市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/chuckdal/jiazheng/commit/7607c5ca3820261febc69fb6ff0e5a38277e00e1
+。
+泰州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/5617aa38104ff03f77c9713cced44ef39a7b4916
+。
+唐山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/avidiaz999/hangzhou/commit/74bf41f6edd03e367f0c229ba53ff0c5b6208059
+。
+天长市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/j-dyms/shenzhen/commit/a5b0033e4c5ba06f18f635e394c0f2cb16addf28
+。
+天津市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/chuckdal/jiazheng/commit/273999cf48bbe733768abe15ab40bef563231b6a
+。
+天门市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/e8f40a626b536f8c128c9a62a73bb4afe5e0f972
+。
+天水市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/e03f8847a774d3f9d9b8406d75e3b36f265b1818
+。
+铁岭市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/j-dyms/shenzhen/commit/0a2113694fc8d2aede0be502521d18d4db217bca
+。
+桐城市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/chuckdal/jiazheng/commit/7787ab36ac45f74bb54b09fe434fedc76348772c
+。
+铜川市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/ffa2e1db2890a02a64b818ad546d700c331883d0
+。
+铜陵市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/fe493cef55326a76526ac33579d9d15ec2944dda
+。
+桐乡市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/j-dyms/shenzhen/commit/bc9f0ff9bf686c849eb21c18128aa10dbc9f6506
+。
+瓦房店市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/chuckdal/jiazheng/commit/b6a64c81fdfb8decbdaa237b526c332a4bc4d7cc
+。
+潍坊市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/57218a309b10346ce14f5ed30ab494f30c3bd129
+。
+威海市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/9dd238a134598454bfbf440cb1521cc7de868604
+。
+温岭市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/j-dyms/shenzhen/commit/7f43cd2a8910f2d4cec1fd38ec550177f1971315
+。
+温州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/chuckdal/jiazheng/commit/85bbb39c6785bd365bf7f0940a54eec1931b6365
+。
+武汉市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/e209fa8c572b3ff74371e53625b784c1d99ece6c
+。
+芜湖市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/ebba5b614a5edb618f2298dbd1e3c24ff5a21566
+。
+乌鲁木齐市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/j-dyms/shenzhen/commit/0b2ff1601e454b76aed1a4f84085c97988680f25
+。
+无锡市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/b458504fdd7eeb505882e3c9f1a241d482e360b3
+。
+武夷山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/chuckdal/jiazheng/commit/ecda4e2844dc27edd114c0963e4e65f147cd77c4
+。
+梧州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/e4cc7e4853f534bd6c78f942d885b0a2959ac163
+。
+西安市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/j-dyms/shenzhen/commit/5ef5997d41b55dec74c011f0a2b7ed12ceb3e137
+。
+西宁市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/6cadc2dab55db028435d250d7c9b3fca9a5d864a
+。
+厦门市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/chuckdal/jiazheng/commit/93ab86d62a8e06b0a8d8304485afedc53c2c794d
+。
+咸宁市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/a9e6d5a98e692d5344d249fb3eaf13a7117afa9a
+。
+仙桃市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/j-dyms/shenzhen/commit/ea06f23d710fb20276fd714073309f6e5a2ecb41
+。
+咸阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/912bdfeb0b6ace4eaab8fcd08cc958d4db3b848a
+。
+襄樊市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/chuckdal/jiazheng/commit/4fb1e7ff8dcdc70b77736a38d16e18abde6fcc02
+。
+象山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/341cc8db834f3ecfd51ec658fac722602437894b
+。
+湘潭市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/j-dyms/shenzhen/commit/6f7c6c3bec03cdb3b1cc381022c0476122713a98
+。
+湘西市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/2364e4b404ba3c968ba0cc2cd6812e3628618a6b
+。
+襄阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/chuckdal/jiazheng/commit/801cdcd778e23cbf9abb47bece4d3a409da06465
+。
+孝感市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/avidiaz999/hangzhou/commit/431855778a9fc8fa1aa6f8e0d82999189dd17588
+。
+萧山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/j-dyms/shenzhen/commit/a9184f67d2c4574018e55be1f27d960c5b57931f
+。
+新乡市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/fe19bb27c569ea3af5f89a83289f7df06211f2b6
+。
+信阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/chuckdal/jiazheng/commit/48fecc4e0e87541e559c870e6e7f4a43fbcb7938
+。
+新沂市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/cab18afdf716e28f34b93a077b2d2db66dd29dc2
+。
+新余市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/j-dyms/shenzhen/commit/9d56c05be8a9a0e7c467632c100a6d76c50f3417
+。
+兴化市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/8da927583f88e47805b13d7430df01534107c2af
+。
+邢台市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/chuckdal/jiazheng/commit/9a9626d92fff691fefb1aee68bd7e80e6479072f
+。
+许昌市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/avidiaz999/hangzhou/commit/c7187249540caa743f1e2ca6114198ec0686a219
+。
+徐州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/j-dyms/shenzhen/commit/be8117bb3a539d419671b67bfae45e1e99f48018
+。
+宣城市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/d7caeeae82345c0ceee24cf48ddd810b3e4a3053
+。
+雅安市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/chuckdal/jiazheng/commit/c9124d5d732e864b15ddc60ca1ab3280d6f3dc05
+。
+延安市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/j-dyms/shenzhen/commit/f81074ae3d4f0fe48373498052ee1857b84f0241
+。
+盐城市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/9cd61827f09ae0cd5644bc6608c80ea8fafed9d3
+。
+烟台市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/d6a9690ba77e27b4a2f446d9efbaab74c7c7f288
+。
+阳春市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/chuckdal/jiazheng/commit/65862a00de452aeb79eeaac693e0f9ab85ac672d
+。
+阳江市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/93cb2b92b5fb414b9e429584998dbffeba581569
+。
+阳泉市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/j-dyms/shenzhen/commit/5c1e81c124eb0247976d681d238b96f9b8677f6a
+。
+扬中市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/f0a45f2bcb61ce7cf72d88b19a95a04584ce0957
+。
+扬州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/chuckdal/jiazheng/commit/02a0e462d67a06f12e52c08872d3214b01855982
+。
+宜宾市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/j-dyms/shenzhen/commit/a0d5b0287aacdc2114349accb7eddcad6445907f
+。
+宜昌市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/91af772f330f5b769d60ba6a737017c8895434bf
+。
+宜春市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/bc1d9e951b5255a2343601b2b115d6aa98b9b173
+。
+宜都市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/chuckdal/jiazheng/commit/d0d743af1f1ad94cc558361a654703926ae4aa14
+。
+义乌市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/j-dyms/shenzhen/commit/1248fd6fb0ec3cbf71152f84f6e5fdd7cbe99a49
+。
+宜兴市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/7960a0ee6bd92ba03d2ad6a67fd77fcddb08e8ed
+。
+益阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/979dd9a2b9e38af5dcf9f41c0a388b4beba69973
+。
+银川市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/chuckdal/jiazheng/commit/4fe7d97b576d3349bd2961bbded15c0a9e8ceb4c
+。
+营口市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/j-dyms/shenzhen/commit/4ca0890262ccdf809f710dec702440350cdab2b4
+。
+鹰潭市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/985873d4e2128b232bd42b24de6a8ba4069178e4
+。
+永新市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/8fc2fd2ebcddc81fd67d9ad07cdd5b8a96e9505d
+。
+永州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/chuckdal/jiazheng/commit/958fb61125f4f2dfb2aa7275b6613b64271b41d3
+。
+榆林市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/j-dyms/shenzhen/commit/880ae59a767bf13be1da44aa1f12e96ee2178bf1
+。
+玉林市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/32a7b126d36acba77f7556c910182366a129c23b
+。
+玉溪市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/1a7ba678dba48b9bf520731109a82406b8847c4a
+。
+余姚市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/chuckdal/jiazheng/commit/0a80df12497f9ab5fb4199656c366320dd6f4e00
+。
+禹州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/j-dyms/shenzhen/commit/0839fe4f892bdd038178f69c8eeb18fdd700cab8
+。
+岳阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/bef0b7a95f5e3b982bcfb68339aa5abd5a937e49
+。
+云浮市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/benbensuriushe/chanpin/commit/2b216acee410dc8bc3d591be6b9625cec9fcefc9
+。
+枣庄市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/chuckdal/jiazheng/commit/b807f8feb20631c93c1289e15aa6c715349c9e9a
+。
+湛江市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/j-dyms/shenzhen/commit/4283d7a78d0c4879558888db00ded1a1e45f188a
+。
+张家界市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/benbensuriushe/chanpin/commit/abaee3d0fbfb3f3e9f682863212ba1f12369fb4c
+。
+张家口市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/93c0c3a6e8406925b39315615c7e392994d9bca1
+。
+章丘市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/chuckdal/jiazheng/commit/3b1355eb6ba18781ca0117db6b7a3b5595fba0dc
+。
+漳州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/j-dyms/shenzhen/commit/e711cc7b6438f920a50a6ba6a47b17e0be5073bd
+。
+肇庆市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/5ddaecd09afb414c380303305e9e6794c6f1919a
+。
+镇江市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/821f6bffeb9af9a6c1724049f9466be4a23688c9
+。
+郑州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/chuckdal/jiazheng/commit/8ee4d87e52b8ea6c55551d0d8e9c8836f69438a9
+。
+重庆市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/j-dyms/shenzhen/commit/c1ca9392adbc1d4a14b06b6bf714d4406900b1a7
+。
+中山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/8163a2fe264f3cb58fddffc38d712a5861d0e572
+。
+周口市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/bda492cbb6dbadd986a28c700f27f5dfe88aedd9
+。
+舟山市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/chuckdal/jiazheng/commit/c0c630e7d3887c9f396c408b69041f460184d50f
+。
+诸城市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/j-dyms/shenzhen/commit/6ea0ac840317e464b3cc77b98c74b73edca24ac1
+。
+珠海市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/benbensuriushe/chanpin/commit/9e23a3774cb9f43636d62fc39e36aab39e04a3a6
+。
+株洲市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/avidiaz999/hangzhou/commit/f1c1038a116ba3123ed2beea50dbcff13992d59b
+。
+诸暨市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/chuckdal/jiazheng/commit/120fa072d34c4246be61e6be6a2ee0cdb3fdda84
+。
+庄河市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/j-dyms/shenzhen/commit/c76674765c430355786a0723087f48f35b13acd1
+。
+自贡市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/550697441e74f6c01a5784efb86496497d870332
+。
+资阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/chuckdal/jiazheng/commit/f253269b88b1e160329187707e224abf442b33c1
+。
+遵义市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/j-dyms/shenzhen/commit/49f5beef89746cf282546a435942a3c2f790ac8e
+。
+漯河市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/avidiaz999/hangzhou/commit/7ca1b891a66bc779e0bb6acd53e3bf8dd918274a
+。
+鄢陵市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/benbensuriushe/chanpin/commit/652f21f42542f1bfccd32ed482bc78fdb9a1ce07
+。
+沭阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/avidiaz999/hangzhou/commit/9ea984942d33fcdb733ce3070f4112678568cd2d
+。
+濮阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/chuckdal/jiazheng/commit/206fb58eb725a096b92ac6ed1cdefa03d6d22aa0
+。
+溧阳市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/j-dyms/shenzhen/commit/318f704a60408452f7e3d7fc44753be6a941d161
+。
+泸州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/benbensuriushe/chanpin/commit/d8ae99d83c85bf60ae5ff255c03846bd35ee5491
+。
+衢州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/avidiaz999/hangzhou/commit/0b9674bd06fc677e5d6bdeea43e210eaaf81d8d9
+。
+亳州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/chuckdal/jiazheng/commit/d4077893390e7bcaeb60891eba6dcc18d7b77aa2
+。
+邳州市威能壁挂炉出现f.29故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/j-dyms/shenzhen/commit/f23bbfd0a3db6566681221e6f1523c45e55797be
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月13日08时45分07秒*
+*数据来源：新浪财经、公开媒体报道*
